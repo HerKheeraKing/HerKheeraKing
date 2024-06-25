@@ -7,3 +7,17 @@
 - ⚡ Fun fact: I love making new friends 😉 
 
 
+Let's connect! @[Linked In](www.linkedin.com/in/kheera-king-105b05129) 
+
+
+
+
+![3955056](https://github.com/HerKheeraKing/HerKheeraKing/assets/146056849/c8d56c72-e3bc-491e-8469-df31523df940)
+
+
+
+
+
+
+
+
