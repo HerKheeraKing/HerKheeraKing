@@ -9,7 +9,7 @@
 🥼🪐 Looking forward to engaging with the tech community and contributing to impactful projects!
 
 
-Let's connect!🫂 @[Linked In](www.linkedin.com/in/kheera-king-105b05129)
+Let's connect!🫂 @[Linked In](https://www.linkedin.com/in/kheera-king-105b05129/)
 
 
 
