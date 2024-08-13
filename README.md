@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kheera currently a Uni student...
-- 👀 I’m interested in simulation engineering & space!
+- 👀 I’m interested in simulation engineering, robots & space!
 - 🧪 I’m currently learning Unity & adding C# to the languages I know.
 - 💞️ I’m looking to collaborate on simple simulation / coding skill accumulating projects for now.
 - 📫 You can reach me on LinkedIn, just shoot a message.
