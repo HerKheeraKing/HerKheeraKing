@@ -1,6 +1,6 @@
 // Hello, I'm Kheera..
 
-👩🏾‍🎓📚  A university student with a keen interest in simulation engineering, robotics, space exploration, data science, and robo-psychology. Currently, I am enhancing my skills in Unity and Arduino, and expanding my programming knowledge by learning C languages. 
+👩🏾‍🎓📚  A university student with a keen interest in simulation engineering, robotics, space exploration, data science, and robo-psychology. Currently, I am enhancing my skills in Unity, Unreal, VR, Blender, Arduino and Solidworks while expanding my programming knowledge in learning C#, C++, Python & Matlab. 
 
 ⌨️🧪 I am eager to collaborate on projects that focus on simulation, coding, and data science, aiming to build and refine my technical abilities.
 
